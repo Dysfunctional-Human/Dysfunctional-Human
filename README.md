@@ -1,6 +1,6 @@
 ## Hi there 👋
 #### I'm Aarav, an undergrad student at NSUT, Delhi
-🕹️I like building and breaking things (and also playing video games).
+🕹️ I like building and breaking things (and also playing video games).
 
 💫 If you can't impress them with your intelligence, then baffle them with your stupidity
 
